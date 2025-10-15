@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @hooluuwaa
 - 👀 I’m interested in game...
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning 。
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me twitter ok
 nice one
